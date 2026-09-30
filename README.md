@@ -1,4 +1,4 @@
--  Hi, I’m @Anika019
+-  Hi, I’m Anika
 -  I’m interested in astronomy coding, astrophysics coding and codes that make our lives easier!
 -  I conduct research on AGNs and Quasars.
 
